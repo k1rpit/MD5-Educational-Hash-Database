@@ -4,7 +4,7 @@
  ![GitHub](https://img.shields.io/badge/GitHub-181717?style=flat&logo=github&logoColor=white)
  
  
-![Telegram](https://img.shields.io/badge/Telegram-26A5E4?style=flat&logo=telegram&logoColor=white)
+t.me/k1rpit718s
 https://web.telegram.org/k/#@geiporno718s
 # ⚡ MD5 Educational Hash Database (hash_pw_baza.txt)
 
